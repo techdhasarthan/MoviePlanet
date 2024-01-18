@@ -1,0 +1,1 @@
+Welcome to MoviePlanet, your ultimate destination for all things movies and series! Immerse yourself in a world of cinematic wonders as we bring you a comprehensive platform dedicated to the latest films, timeless classics, and binge-worthy TV series.
